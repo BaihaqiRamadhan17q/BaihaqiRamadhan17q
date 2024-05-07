@@ -1,0 +1,13 @@
+- 👋 Hi, I’m @BaihaqiRamadhan17q
+- 👀 I’m interested in new experience and social
+- 🌱 I’m currently learning language history and monetize
+- 💞️ I’m looking to collaborate on everyone i guess
+- 📫 How to reach me gmail
+- 😄 Pronouns: he
+- ⚡ Fun fact: im only 10y!
+- 💲 <-- i need that (ofc)
+- 👥 im very easy to social with
+- 🔥 i think everything looks cool here
+- ⚽ i truly loves football and also keepers
+- thats all
+- never gonna give u up-  
